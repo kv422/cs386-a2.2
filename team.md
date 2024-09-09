@@ -3,3 +3,4 @@
 # Kayden Vicenti
 
 # Ciaran Wham
+"human" being that exists in a realm of physicality. Often seen playing games, doing homework, and playing dungeons and dragons. Nerdy stuff. More creative description coming soon!
